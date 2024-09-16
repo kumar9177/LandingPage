@@ -1,3 +1,5 @@
+https://chatgpt.com/share/66e7c689-6f68-8010-807a-5456b630ae53
+
 I can't send emails directly, but I can help you draft an email with the information. Here’s a template you can use to copy and paste into your email client:
 
 ---
